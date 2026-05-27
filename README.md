@@ -16,3 +16,6 @@ Now its the Activation Part Please open the PLEASE READ.pdf in Keygen (CRACK)
 
 
 if you need help or assistance please DM or massage me on Discord at https://bit.ly/49kLxZ5 <-- This is a shortened link or https://discordapp.com/users/783869849704202270
+
+Atmosphere Data File: https://archive.org/download/spectrasonics-atmosphere/Atmosphere%20Data.iso/Atmosphere.dat
+Trilogy Data File: https://archive.org/download/spectrasonics-trilogy-total-bass-module_20240322/Trilogy%20Data.rar/Trilogy.dat
